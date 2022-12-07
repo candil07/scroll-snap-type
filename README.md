@@ -4,7 +4,7 @@ After watching the full video you will be able to make this Scroll Snap Type for
 
 please subscribe, then download as much as you like: https://bit.ly/2J9kmHP
 
-➤➤ Download No Ads: https://bit.ly/3UZSlSe
+➤➤ Demo : https://youtube.com/shorts/WlpwtzZyTE4?feature=share
 
 ➤➤ ALSO JOIN OUR TELEGRAM GROUP: https://t.me/candilcode
 
